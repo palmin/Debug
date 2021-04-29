@@ -1,0 +1,1 @@
+- Acronyme de **Synergie du COntact Renforcée par la Polyvalence de l’infovalorisatION**

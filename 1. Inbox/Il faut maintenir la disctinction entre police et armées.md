@@ -1,0 +1,3 @@
+#WIP 
+
+Cette séparation est remise en cause régulièrement dans un contexte de menace terroriste, mais elle me semble toujours pertinente. D’un point de vue pratique, les règles avec lesquelles l’Etat traite ses citoyens ne sont pas les mêmes que celles appliquées en opérations. Et d’un point de vue plus politique : il est possible d’atteindre un équilibre avec l’ennemi extérieur, la force servant alors ponctuellement le dialogue stratégique. L’usage de la force contre l’ennemi intérieur est au contraire une mission continue.

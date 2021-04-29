@@ -1,0 +1,4 @@
+- 33% Chrétiens
+- 20% Musulmans
+- 13% Hindous
+- 6% Boudhistes

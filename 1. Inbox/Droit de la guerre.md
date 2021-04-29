@@ -1,0 +1,1 @@
+Le droit de la guerre vise principalement à protéger les combattants.

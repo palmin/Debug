@@ -1,0 +1,5 @@
+- Octobre 2020
+- Trois ruptures principales :
+	- **Les frontières sont illégitimes** à s’opposer aux mouvements humains
+	- **La proprieté privée est secondaire** à la destination universelle des biens de la terre
+	- **La guerre n’est plus jamais juste,** les budgets d’armements devraient servir à un fond mondial contre la faim et l'élimination totale des armes nucléaire doit être un objectif ultime

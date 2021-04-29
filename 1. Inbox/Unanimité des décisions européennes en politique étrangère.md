@@ -1,0 +1,3 @@
+- Ralentit les décisions 
+- Permet un effort constant de rapprochement des points de vue
+- Source de légitimité et donc de force pour les décisions prises

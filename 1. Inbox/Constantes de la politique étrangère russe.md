@@ -1,0 +1,3 @@
+La Russie se sent assiègée, les deux tiers de ses côtes sont inexploitables toute l'année en raison des glaces. Elle a depuis les tsars une **volontée d'acceder aux mers chaudes.** En conséquence, [[La Russie a une posture navale défensive]].
+
+En tant qu'ancien empire, et marquée par l'héritage soviétique, la Russie a **l'obsession du contrôle de son voisinage.** Cette volonté de maîtrise se heurte au XXIe siècle à la réalite : [[La Russie est ceinturée de zones de crise]].

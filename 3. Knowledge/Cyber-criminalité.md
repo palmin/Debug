@@ -1,0 +1,1 @@
+- A quelle coût est estimée la cybercriminalité en 2014 ? :: 400 milliards par an (d'après le rapport Allianz "A Guide to Cyber Risk. Managing the Impact of Increasing Interconnectivity")

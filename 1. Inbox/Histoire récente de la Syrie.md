@@ -1,0 +1,5 @@
+- 2013 : population soutint Assad à 70% (d’après l’OTAN).
+- 21 août 2013 : attaque chimique de la Ghouta au gaz Sarin (attribution difficile) ; Syrie, Egypte et Israël sont non signataires de la convention d'interdiction des armes chimiques.
+- 2014 : Bachar al Assad élu pour la 1ère fois avec 88% des suffrages et peu d’abstention (auparavant le président était désigné par le parti BAAS puis soumis au referendum).
+- Septembre 2018 : accord de Sotchi avec la Russie et la Turquie.
+- Mars 2020 : cessez le feu avec la Turquie dans la poche d’Idlib.

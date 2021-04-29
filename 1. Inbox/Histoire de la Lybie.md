@@ -1,0 +1,1 @@
+- 1551 à 1912 : Lybie ottomane jusqu’au traité de Lausanne-Ouchy

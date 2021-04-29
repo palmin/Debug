@@ -1,0 +1,1 @@
+Il n’y a pas de refugiés en Russie. Les relations diplomatiques signifient pour les russes que les pays ont une légitimité, et la Russie n'offre donc rien aux ressortissants étrangers.

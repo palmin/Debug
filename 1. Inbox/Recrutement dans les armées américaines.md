@@ -1,0 +1,1 @@
+La méthode standard de recrutement aux USA est de marchander quelques années de contrat contre des années d’études.

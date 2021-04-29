@@ -1,0 +1,5 @@
+La position du Pape François est une **rupture avec la diplomatie traditionnelle du Saint Siège** sur la dissuasion. Après la signature du [[TIAN (2017)]] en 2017, le Saint Père a réaffirmé lors de son discours au Japon en novembre 2019 que l’utilisation mais **également la possession** d’armes nucléaires sont immorales.
+
+L’équipe diplomatique du Pape François n’a aucun membre européen, la majorité de ses collaborateurs sont sud-américains. Aucun n’a donc l’expérience directe de la stabilité que la dissuasion a permis. Cette condamnation de la possession d’armes nucléaire n’a en plus qu’un effet limité sur **la majorité des acteurs qui ne sont pas de culture catholique,** seule la France peut se considérer directement visée.
+
+A titre personnelle, la position du Pape est  **un défi pour mes convictions.** Je reste persuadé que la dissuasion n’est légitime que si sa mise en oeuvre est limitée dans le temps et accompagne un effort de désarmement. Mais je suis complètement d’accord avec à la position du chef de l’Etat : [[Le désarmement n'est pas un objectif en soi]] et une action unilatérale de la France ne peut en aucune façon être un facteur de paix.

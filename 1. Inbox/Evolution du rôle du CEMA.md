@@ -1,0 +1,4 @@
+- Décret de 1962 : création de l’appellation de CEMA
+- Décret de 1982 : ministère unique / CEMA responsable des opérations et conseiller du gouvernement
+- Décret de 2005 : rattachement des EMx au CEMA
+- Décret de 2009 et 2013 : renforcement du rôle du CEMA

@@ -1,0 +1,1 @@
+L’inflation des prix des [[Dépenses d'armement dans le monde]] est largement supérieur à l’inflation (entre 1 et 7% au dessus).

@@ -1,0 +1,1 @@
+La technocratie est une technique de gestion du XXe siècle qui suppose que tout est affaire d’équation et d’experts.

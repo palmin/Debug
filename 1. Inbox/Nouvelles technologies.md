@@ -1,0 +1,1 @@
+L’impact des nouvelles technologies suit un schéma établi : le [[Cycle d’adoption des nouvelles technologies]]. L’estimation de leur effets est cependant difficile (voir [[Loi d’Amara]]).

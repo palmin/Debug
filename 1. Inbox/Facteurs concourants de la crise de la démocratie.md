@@ -1,0 +1,5 @@
+- Nationalisation de la politique (au sens de prééminence de l'échelle nationale) et augmentation de l'enjeu des grandes éléctions
+- Réduction des cycles éléctoraux
+- Réduction des marges de victoire
+- Système éléctoral ne representant pas les préférences (voir [[Penser un meilleur système éléctoral]])
+- Déclin des médias de qualité

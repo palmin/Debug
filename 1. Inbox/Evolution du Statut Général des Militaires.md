@@ -1,0 +1,7 @@
+- **Promulgué pour la première fois en 1972** 
+	   - Rassemble et rationalise de nombreux textes antérieurs dans un cadre législatif unique
+- **Refonte en 2005** 
+	   - Prise en compte professionnalisation et nouvelles conditions d’emploi (engagements en situation de crise)
+	   - Réduction de moitié à 100 articles
+	   - Prise en compte des travaux d’une commission présidée par Hélie de Saint Marc
+- Intégré lors de la création du Code de la Défense en 2005

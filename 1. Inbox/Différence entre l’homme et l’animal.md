@@ -1,0 +1,1 @@
+Pour Régis Debray, le règne animal est celui de la répétition alors que le règne humain est celui de la mémoire et de l’histoire.

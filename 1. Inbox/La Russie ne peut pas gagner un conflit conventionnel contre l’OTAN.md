@@ -1,0 +1,1 @@
+Les forces conventionnelles russes ne peuvent pas envisager gagner un conflit conventionnel contre les armées de l’OTAN. Cet état de fait est fondateur de la stratégie indirecte russe, qui s’appuie sur la [[Action hybride]] et le [[Cyber]].

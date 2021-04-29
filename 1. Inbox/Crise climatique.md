@@ -1,0 +1,3 @@
+La Chine a annoncé en octobre 2020 vouloir atteindre la **neutralité carbonne en 2060,** après un pic d'émissions en 2030. Il s'agit d'un succès de la diplomatie européenne dans le cadre des négociations de la COP26. **La Chine represente un tiers des emissions de gaz à effet de serre.** Cette anonce represente un perte de 0,3 degrés.
+
+Aucun des deux candidats aux éléctions américaines n'a un projet comparable au *Green New Deal* européen. Obama n'avait quand a lui jamais présenté l'accord de Paris au congrès.

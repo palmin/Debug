@@ -1,0 +1,1 @@
+Le service militaire a été **suspendu en 1996** pour adapter notre modèle d'armée, cette décision reste réversible.

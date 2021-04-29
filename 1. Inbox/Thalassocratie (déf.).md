@@ -1,0 +1,2 @@
+- Ethymologie : thalassa (la mer) / kratos (pouvoir)
+- Se dit d'une puissance politique fondée sur la domination de la mer

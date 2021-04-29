@@ -1,0 +1,3 @@
+Au nom des luttes dans des domaines divers (blanchiment, terrorisme, contenus haineux...), le législateur a considérablement augmenté le corpus juridique : création du code de la sécurité intérieure en 2012, **20 lois sécuritaires entre 2000 et 2020.**
+
+La loi Avia de 2020 contre le contenu haineux sur internet va plus loin, en inversant la charge de la preuve. Les hébergeurs doivent supprimer le contenu, et les utilisateurs doivent venir argumenter du fait que le contenu n’est pas haineux pour qu’il soit republié. **Elle a d’ailleurs été refusée lors de son examen par le conseil constitutionnel en juin 2020.**

@@ -1,0 +1,3 @@
+Pour Mahan **la maîtrise de la mer est un bien tellement précieux qu’il mérite qu’on le recherche en priorité.** La meilleur façon de l’obtenir est de détruire la force organisée de l’adversaire, il faut donc concentrer ses forces et rechercher l’adversaire dès que possible.
+
+Cette bataille n’a cependant que rarement lieu tel que décrit par Mahan, ce qui peut contribuer à l'[[Illusion de la bataille décisive]].

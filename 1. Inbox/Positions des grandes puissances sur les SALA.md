@@ -1,0 +1,3 @@
+- Pour les USA et la Russie, ces systèmes devraient être autorisés
+- La France émet des réserves quand à leur existence
+- La Chine autorise le développement mais pas l'emploi

@@ -1,0 +1,120 @@
+{
+  "main": {
+    "id": "39ab64a6f36fcef6",
+    "type": "split",
+    "children": [
+      {
+        "id": "b80737174db3af37",
+        "type": "leaf",
+        "state": {
+          "type": "markdown",
+          "state": {
+            "file": "4. Ideas/La Turquie a un héritage complexe.md",
+            "mode": "source"
+          }
+        }
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "c1f902c5a2f4f3ed",
+    "type": "split",
+    "children": [
+      {
+        "id": "4c51f6ae3fa9a1f6",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "1e8618949d368a86",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {}
+            }
+          },
+          {
+            "id": "5e31fda92522e968",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "index",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical"
+              }
+            }
+          },
+          {
+            "id": "de4babc4ac2ed1f8",
+            "type": "leaf",
+            "state": {
+              "type": "starred",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 322
+  },
+  "right": {
+    "id": "509cac2fe26d0e00",
+    "type": "split",
+    "children": [
+      {
+        "id": "1f4bd4b27c1c141c",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "0093f25cd3d66da4",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "file": "4. Ideas/La Turquie a un héritage complexe.md",
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": true
+              }
+            }
+          },
+          {
+            "id": "f89ffd74f58992c2",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "4. Ideas/La Turquie a un héritage complexe.md"
+              }
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 300,
+    "collapsed": true
+  },
+  "active": "b80737174db3af37",
+  "lastOpenFiles": [
+    "4. Ideas/La Turquie a un héritage complexe.md",
+    "Index.md",
+    "1. Inbox/Destin d'un empire (Glubb).md",
+    "1. Inbox/Définitions autour de l'IA.md",
+    "1. Inbox/Cycle d’adoption des nouvelles technologies.md",
+    "1. Inbox/Cyberdéfense dans les armees francaises.md",
+    "1. Inbox/Cyberdéfense dans les armées britanniques.md",
+    "1. Inbox/Cryptomonnaie.md",
+    "1. Inbox/Cyber-criminalité.md",
+    "1. Inbox/Cyber (déf.).md"
+  ]
+}

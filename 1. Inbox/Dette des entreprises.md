@@ -1,0 +1,1 @@
+- **Avant la crise du COVID-19, dette des entreprisesdans le monde : 10 000 milliards de dollars**

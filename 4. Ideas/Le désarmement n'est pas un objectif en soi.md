@@ -1,0 +1,1 @@
+Emmanuel Macron a rappelé dans son discours à l’Ecole de Guerre du 7 février 2020 que **le désarmement n’était pas pour la France un objectif en soi, l’amélioration de la sécurité collective est un objectif.** Il a également rappelé que la France est une bonne élève en matière de transparence et de juste suffisance.

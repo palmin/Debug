@@ -1,0 +1,25 @@
+## Management
+
+Source :https://jakobgreenfeld.com/metrics
+
+IM : Contre le "management by metrics"
+
+Focalise les énergies sur une vision statistique au détriment du qualitatif.
+↳ ex : géant Tech dont l'U ✗ est moins bonne
+
+Goodhart 'law :“When a measure becomes a target, it ceases to be a good measure.“
+- [] Goohart's law
+
+↳ ex : politique
+	montée des sondages parallèle perte idée bien commun
+	ex : Cobra effet
+
+↳ ex : sciences
+	focus sur le nombre de citation Travail incremental/pas de risque Tout le monde joue le jeu (accord réciproque)
+	s'oppose à la fin des "low hanging fruits"
+
+## Que faire ?
+
+→ Ne pas être anti-metrics par principe
+→ Prendre en compte un grand nombre d'indicateurs
+→ Accepter l'intuition, informée par échanges humains

@@ -1,0 +1,7 @@
+- Proposé par le président Macron lors d'un déplacement dans les pays baltes en septembre 2020
+- Comporte trois volets principaux :
+	- Constitution d'une réserve d'experts nationaux
+    - Résilience à la [[Désinformation]] pour favoriser la participation
+    - Rénovation des règles de financement des partis européens pour plus de transparence
+- S'inscrit dans le cadre de : [[La politique européenne du Président Macron est centrée sur le concept de souverraineté européenne]]
+- Rejoint le [[(WIP) Plan d'action pour la démocratie européenne d'Ursula von Leyen]]

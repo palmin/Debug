@@ -1,0 +1,1 @@
+Pour Karl Polanyi, le libéralisme économique sera une phase de désorganisation entre deux périodes plus régulées.

@@ -1,0 +1,2 @@
+>*Si la tâche de la politique consiste à transformer le monde en une demeure convenable à l’homme, se pose la question : qu’est-ce qu’une demeure convenable à l’homme?*
+>Hans Jonas. _Conversation avec Hannah Arendt_.

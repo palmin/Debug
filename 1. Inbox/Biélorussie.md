@@ -1,0 +1,5 @@
+- Origine de la contestation : pas de contrôle des éléctions par l'OSCE
+	- OSCE affirme ne pas avoir eu une invitation à temps 
+	- Elle aurait du se préparer avant l'inviation !
+- Trucage de l'élection probable mais victoire réélle du président en place probable également
+- Tentative de changement de régime : opportunité pour la Russie d'augmenter son pouvoir sur Minsk

@@ -1,0 +1,5 @@
+Les ambitions chinoises sont importantes, **à minima devenir la première puissance économique mondiale.** Elle poursuit avec [[Belt and Road Initiative (BRI)]] sa mise sous tutelle de nombreux pays et organisations. [[La Chine a abandonné officiellement le Pacifisme]], notamment dans le domaine naval ([[Evolution et ambiguïtés de la stratégie navale chinoise]]). Elle souhaite **réaliser ses ambitions avant 2049 et les 100 ans de la RPC.**
+
+[[Les Etats-Unis se sentent menacés par la Chine]], ils ont en retour l'obsession d'idéologiser le rapport de force avec la Chine. Depuis le [[Pivot vers l'Asie]], ils poursuivent une logique de containement. En conséquence [[L'affrontement entre la Chine et les Etats-Unis peut sembler inéluctable]]. 
+
+La posture d'équilibre et de partenariat souhaitée par l'UE semble pour l'instant ne pas pouvoir empecher Pekin d'accéder à la première place mondiale.

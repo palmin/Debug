@@ -1,0 +1,3 @@
+- Empereur chinois du 18e (dynastie Qing)
+- Connu pour s'être opposé au roi d'Angleterre Georges III 
+- « Notre empire céleste possède toute chose en abondance (…) et n’a nul besoin d’importer des produits des barbares étrangers »

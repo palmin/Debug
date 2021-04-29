@@ -1,0 +1,1 @@
+Les militaires français d’active n’ont pas eu le droit de vote de 1871 à 1945.

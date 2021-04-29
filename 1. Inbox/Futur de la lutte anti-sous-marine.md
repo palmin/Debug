@@ -1,0 +1,1 @@
+Les anglais sont engagés dans le programme **ASW Spearhead,** qui vise à passer du combat de plateforme indépendante à un réseau de capteurs et d’effecteurs collaborant (voir [[Combat collaboratif]]).

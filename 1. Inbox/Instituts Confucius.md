@@ -1,0 +1,1 @@
+Un des 14 centre Confucius en France est situé à Brest, ce qui n’est probablement pas une coïncidence.

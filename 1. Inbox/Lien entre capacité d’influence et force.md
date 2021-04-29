@@ -1,0 +1,1 @@
+Le document stratégique UK Maritime Power d’octobre 2017 rappelle que **« la capacité d’influencer est intrinséquement liée à la capacité de projeter la puissance militaire ».**

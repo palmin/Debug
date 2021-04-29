@@ -1,0 +1,3 @@
+Le rapport à la mort est caractéristique du niveau de développement des civilisations et n'a pas cessé d'évoluer. Le respect des morts est un invariant anthropologique. Des traces de rituels mortuaires dès le paléolithique (voir [[Ages de la Préhistoire]]) traduisent l'émergence d'une spiritualité.
+
+Il a fallu attendre la controverse de Valladolid en 1550 pour que tous aient droit au même traitement. En 1948 la déclaration universelle des droits de l'homme affirme le caractère absolu des droits.

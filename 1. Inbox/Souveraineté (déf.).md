@@ -1,0 +1,1 @@
+D’après le Larousse, la souveraineté est **l’indépendance absolue dans l’ordre international. Elle n’admet donc pas de gradation.** On est souverain ou on ne l’est pas.

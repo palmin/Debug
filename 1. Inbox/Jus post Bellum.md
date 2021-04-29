@@ -1,0 +1,4 @@
+- État doit cesser si agresseur prêt à se rendre
+- Armistices et traités de paix signés par autorités souveraines
+- Termes proportionnels aux torts commis
+- Traduction en justice des responsables des torts ayant conduit à la guerre

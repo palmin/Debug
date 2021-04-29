@@ -1,0 +1,1 @@
+La colonisation n'a pas été l'enrichissement des européens au dépens de l'Afrique. Si ca avait été le cas, la puissance d'un pays serrait fonction de ses colonies. Le Portugal qui a décolonisé en 1975 est un bon contre-exemple.

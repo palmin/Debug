@@ -1,0 +1,1 @@
+- Faire le lien avec les deux sortes d'éthique de Max Weber

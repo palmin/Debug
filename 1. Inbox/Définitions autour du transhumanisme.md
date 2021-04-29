@@ -1,0 +1,2 @@
+- ''NBIC :'' Nanotechnologies, Biotechnologies, Informatique et sciences Cognitives.
+- ''Cyborg :'' de l’anglais *Cybernetic Organism*, s’applique à tout être vivant ayant reçu en greffe un élément mécanique ou électronique.

@@ -1,0 +1,1 @@
+Les britanniques ont commencé l’étude d’une constellation de nanosatellites d’imagerie. D’un poids d’environ 100kg, pour réduire les coûts et faciliter le lancement, ces nanosatellites sont moins vulnérables qu’un drone tout en permettant un rafraîchissement beaucoup important des images.

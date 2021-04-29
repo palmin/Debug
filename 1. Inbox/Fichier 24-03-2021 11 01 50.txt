@@ -1,0 +1,24 @@
+## Constantes de la physique
+
+Source : https://www.scientificamerican.com/article/the-cosmological-constant-is-physics-most-embarrassing-problem/
+
+Voir Liu, la mort immortelle
+
+Théorie quantique prevoit l'inexistence du vide : en permanence apparition de particules et d'anti-particules associés qui se détruisent
+↳ Vacuum energy
+↳ Source d'extension de l'univers
+
+Non confirmé par l'observation
+
+Vacuum energy represente la constante cosmologique dans l'équation relativité générale
+
+## Historique
+
+1917 : Einstein ajoute pour faire en sorte que
+	l'univers soit statique
+1929 : Hubble découvre que l'univers est en
+	expansion → suppression de la constante
+1998-1999 : expansion en accélération
+		↳ invention de "Dark energy"
+		↳ reintroduction constante
+		accélération reste moins que prédiction

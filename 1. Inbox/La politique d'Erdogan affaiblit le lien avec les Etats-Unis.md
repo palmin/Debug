@@ -1,0 +1,2 @@
+- Menace de déplacement de la base d'Incirlik en Crète (à Souda Bay)
+	- Enjeu important car cette base abrite des capacités nucléaires de l'OTAN

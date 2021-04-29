@@ -1,0 +1,5 @@
+## Marteaux et dous
+
+Source :https://davmac.wordpress.com/2021/01/31/hammers-and-nails-and-operator-overloads/
+
+loi de l'instrument :Abraham Maslow said in 1966, “I suppose it is tempting, if the only tool you have is a hammer, to treat everything as if it were a nail.”

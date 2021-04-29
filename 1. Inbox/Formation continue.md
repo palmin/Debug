@@ -1,0 +1,1 @@
+On parle en Belgique de formation « continuée ». Il s’agit d’un domaine d’excellence des armées.

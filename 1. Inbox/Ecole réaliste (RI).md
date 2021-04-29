@@ -1,0 +1,5 @@
+La **volonté de puissance est le principal mobile des conduites étatiques.** Comme les humains, les États sont des égoïstes rationnels engagés dans une rivalité permanente pour le prestige, les ressources, la sécurité. Ces réflexions se situent dans la filiation de Machiavel et Hobbes sur l' [[Etat de Nature (Hobbes)]], et fond de la guerre l'[[Etat de Nature des Etats (Kant)]]. Dans cette vision du monde, la guerre est inévitable (voir [[Invariance de la guerre]]).
+
+C’est le réalisme qui fait qu' [[Une nouvelle conflictualité émerge du recul des formes conventionnelles de la guerre]], impliquant un report vers la [[Action hybride]] pour atteindre les objectifs des Etats.
+
+On fait généralement remonter la filiation de cette théorie à Thucydide. **Aron et Kissinger sont attachés à cette école.** 

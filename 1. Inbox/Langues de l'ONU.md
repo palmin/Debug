@@ -1,0 +1,7 @@
+- Six langues officielles de l’ONU sont : 
+	- anglais, 
+	- français, 
+	- russe, 
+	- espagnol, 
+	- arabe, 
+	- chinois.

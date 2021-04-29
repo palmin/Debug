@@ -1,0 +1,1 @@
+- 2015 : création du poste d'ambassadeur français des Océans (poste occupé par Serge Ségura)

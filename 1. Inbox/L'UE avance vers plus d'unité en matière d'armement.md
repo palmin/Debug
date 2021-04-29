@@ -1,0 +1,1 @@
+Le 24 septembre 2020 le parlement européen a adopté un rapport soulignant la necessité d'une préférence européenne et de règles d'exportation communes en matière d'armement.

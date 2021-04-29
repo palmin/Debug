@@ -1,0 +1,17 @@
+##Temps de Travail
+
+Source :http://www.opex360.com/2021/02/01/la-notion-de-service-en-tout-temps-et-en-tout-lieu-battue-en-breche-par-le-droit-europeen/
+
+Directive 2003/88 sur le temps de travail
+→ Repos journalier mini 11 heures par 24 heures
+→ Repos hebdo 24 H sur 7 j
+→ Travail nuit 8 H max en moyenne
+→ 4811 mase par semaine
+
+Incompatible avec le principe de disponibilité ↳ voir SGM
+↳ risque de banalisation
+
+Conclusions avocat général CJUE : séparer service courant et ops.
+SC : protec, MCO...
+
+FR : principe de dispo partie de l'identité nationale donc non-transposition.

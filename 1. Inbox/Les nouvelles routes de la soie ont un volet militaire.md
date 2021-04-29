@@ -1,0 +1,3 @@
+La constitution chinoise prévoit l’obligation de protéger les citoyens. Le développement des implantations chinoises à l’étranger dans le cadre de la [[Belt and Road Initiative (BRI)]] s’accompagnent d’une légitimité à intervenir militairement et à prépositionner des forces. Aujourd’hui il s’agit principalement de SMP.
+
+La plupart des infrastructures financées peuvent également avoir un usage militaire, notamment en tant que point d'appui maritime.

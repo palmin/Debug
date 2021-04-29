@@ -1,0 +1,1 @@
+En 2020 dans le Figaro, Charles Pratt estime que la fraude sociale représente 30 milliards d’euros indus versés à 2,5 millions de fantômes.

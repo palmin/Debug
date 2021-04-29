@@ -1,0 +1,9 @@
+**Les signaux positifs** et les communications encourageantes sur les ambitions mondiales de la RN sont nombreux. Ils vont de la reconquête de la capacité PATMAR par l'achat de P8 à la mise en service de deux porte-aéronefs. Je pense que nous sommes cependant sur des dynamiques tout à fait différentes
+
+Autour de moi, j'ai pu constater des **déficits tactiques dus à un manque d'opportunités d'entraînement** dans mon domaine de spécialité. Les avaries ont un impact sur les programmes beaucoup plus important qu'en France. Les 6 T45 naviguent moins que les 2 FDA françaises.
+
+L'origine de ces maux se situe clairement dans une spirale : **MCO et disponibilité déficiente, peu de résultats opérationnels, difficulté à justifier les crédits.** Au niveau de la Navy **essaye de se redonner des marges** de manoeuvres par tous les moyens : réorganisation des autorités (j'ai pu voir la suppression de l'homologue d'ALFOST avec une semaine de préavis), ou suppression de 350 des 1000 postes de Warrant officers par exemple.
+
+Ces difficultés s'inscrivent plus largement dans une **remise en cause du coût du Ministry Of Defense,** alors qu'une **Strategic defense review est en cours.** La SDR de 1998 avait clairement pour objectifs de réduire les couts. Celle de 2010 était plus ambitieuse mais n'a pas été réalisé. La conjoncture économique me pousse à croire que les objectifs sont aujourd'hui probablement de continuer une logique déflationiste. Pas un mois ne passe sans que la presse relate le projet de suppression d'une composante des armées, un jour la guerre des mines, un autre la cavalerie lourde dans son ensemble.
+
+Je pense donc que cette dynamique de déclin de long terme est véritablement différente de la situation en France.

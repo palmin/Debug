@@ -1,0 +1,1 @@
+Les robots humanoïdes sont facilement considérés comme une expression prométhéenne d’imitation de l’homme. Les robots non humanoïdes sont plus naturellement un outil.

@@ -1,0 +1,1 @@
+En 1792, les révolutionnaires crée un « Bureau de l’esprit public ».

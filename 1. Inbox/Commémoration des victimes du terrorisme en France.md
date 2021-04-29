@@ -1,0 +1,2 @@
+- 11 mars 2020 : journée nationale d'hommage aux victimes du terrorisme
+- Date anniversaire de l’attaque de Madrid en 2004 (attentat le plus meurtrier sur le sol européen)

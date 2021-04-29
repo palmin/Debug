@@ -1,0 +1,6 @@
+- Proportionnalité
+- Interdiction des moyens _mala in se_ et des armes prohibées
+- Discrimination entre combattants et non-combattants
+- Respect des prisonniers de guerre
+- Exceptions au principe de discrimination seulement pour "Urgences suprêmes"
+- Indépendance jus in bello et ad bellum

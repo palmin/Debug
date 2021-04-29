@@ -1,0 +1,1 @@
+De 2008 à 2014, 26 millions personnes par ans ont été déplacées suite aux catastrophes naturelles (dont 1% en Europe vs. 90% des pays à revenus faibles et moyens).

@@ -1,0 +1,1 @@
+Pour les psychologues Deci et Ryan, trois besoins sont à la source de la motivation intrinsèque de l’être humain : **compétence, autonomie et appartenance.** Ces trois motifs sont à la fois la source des décisions, mais également la clé d’un fonctionnement optimal.

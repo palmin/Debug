@@ -1,0 +1,2 @@
+>*Un être humain a une racine par sa participation réelle, active et naturelle à l’exis-tence d’une collectivité qui conserve vivants certains trésors du passé et certains pres-sentiments d’avenir. Participation naturelle, c’est-à-dire amenée automatiquement par le lieu, la naissance, la profession, l’entourage. Chaque être humain a besoin d’avoir de multiples racines. Il a besoin de recevoir la presque totalité de sa vie morale, intellectuelle, spirituelle, par l’intermédiaire des milieux dont il fait naturellement partie.*
+>Simone Weil. _L’Enracinement_.

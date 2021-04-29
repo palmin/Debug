@@ -1,0 +1,3 @@
+Douhet écrit en 1912, à la fin de la guerre entre l’Italie et l’Empire Ottoman pour le contrôle de la Lybie, que **la capacité à bombarder les arrières de l’ennemi décidera de l’issue des guerres de demain.** Pour lui la destruction de ses centres de gravité civils et industriels garantit d’annihiler la volonté de l'adversaire. 
+
+Même si l’avenir ne lui donne pas strictement raison, il est **précurseur de la notion de supériorité aérienne.**

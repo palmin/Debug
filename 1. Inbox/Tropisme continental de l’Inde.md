@@ -1,0 +1,3 @@
+L’Inde, **malgré sa géographie quasi-insulaire** avec les hautes chaines montagneuses du nord du pays, a un fort tropisme continental. Le fait que la capitale New Delhi soit à 1000km est à la fois un exemple de ce fait et un facteur de renforcement.
+
+En conséquence la marine est évaluée en fonction de sa capacité à avoir un impact à terre, **elle doit être capable de soutenir la lutte contre le Pakistan ou la Chine.**

@@ -1,0 +1,4 @@
+- 1843 : Tahiti devient protectorat 
+- 1880 : Tahiti devient une colonie 
+- Jusqu'en 1901 : intégration progressive des îles 
+- Fait partie de l’Etat français depuis

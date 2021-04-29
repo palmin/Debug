@@ -1,0 +1,1 @@
+Comme le rappelle Martin Motte dans le numéro 17 de la Revue « Etudes Marines » en janvier 2020, la démonstration de Mahan est **parfaitement logique et donc fallacieuse. La stratégie sur mer dépend de trop de facteurs et de variables pour être aussi limitée.**

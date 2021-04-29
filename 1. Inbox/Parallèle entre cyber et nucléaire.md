@@ -1,0 +1,1 @@
+Il serait intéressant de dévelloper les parallèles entre sécurité dans le cyber et sécurité nucléaire : la sûreté de conception par rapport à la sûreté d’exploitation par exemple, ou bien l’importance d’une culture de sûreté.

@@ -1,0 +1,2 @@
+- Création dans le testament d'Edmond Goncourt en 1892
+- Premier prix en 1903 (Jean-Antoine Nau _Force Ennemie_)

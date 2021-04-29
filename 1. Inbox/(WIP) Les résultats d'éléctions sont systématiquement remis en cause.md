@@ -1,0 +1,1 @@
+- Les deux camps de l'éléction présidentielle américaine de 2020 ont annoncé ne pas reconnaitre que l'autre puisse gagner
